@@ -1,0 +1,1 @@
+# Karolina_Olejniczak_QA_etap_2
